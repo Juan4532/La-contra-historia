@@ -1,0 +1,8 @@
+# El muro de Berlín
+<iframe id='audio_88903085' frameborder='0' allowfullscreen='' scrolling='no' height='200' style='width:100%;' src='https://www.ivoox.com/player_ej_27704552_6_1.html' loading='lazy'></iframe>09/08/2018
+
+Hubo un tiempo en el que la cuarta ciudad de Europa estuvo dividida pro un muro, mejor dicho, por dos muros y una franja de la muerte entre medias moteada por torres de vigilancia con guardias armados que disparaban a todo aquel que se aventurase por la zona. No estoy hablando de una separación que duró unos meses o un par de años, este muro estuvo en pie casi 30 años, desde 1961 a 1989. Tres décadas marcadas por la guerra fría que el muro simbolizó mejor que ninguna otra cosa. Muchos intentaron cruzarlo. Algunos lo consiguieron. Otros, sin embargo, murieron en el intento. 239 personas fueron abatidas a tiros por los guardias cuando intentaban escapar. El muro del que estoy hablando se encontraba en Berlín, la partía por la mitad. En ocasiones cruzaba parques o el río Spree, en otras atravesaba las mismas casas de los berlineses, que fueron derribadas para levantarlo. Cayó hace 29 años. Lo hizo de la manera más insospechada. El muro, que había resistido a casi todo, no pudo con los aires de cambio que soplaban desde el este, desde la Unión Soviética de Mijáil Gorbachov. Su construcción y caída fueron dos de los grandes momentos del siglo XX. Hoy en La ContraHistoria vamos a ver el muro de Berlín, una historia conmovedora y muy instructiva que no deberíamos olvidar nunca. 
+
+ Más en diazvillanueva.com
+
+https://www.ivoox.com/muro-berlin-audios-mp3_rf_27704552_1.html

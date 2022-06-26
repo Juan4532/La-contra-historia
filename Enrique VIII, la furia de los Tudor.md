@@ -1,0 +1,14 @@
+# Enrique VIII, la furia de los Tudor
+<iframe id='audio_88903085' frameborder='0' allowfullscreen='' scrolling='no' height='200' style='width:100%;' src='https://www.ivoox.com/player_ej_62153209_6_1.html' loading='lazy'></iframe>11/12/2020
+
+Junto a la reina Victoria e Isabel I, Enrique VIII es el monarca inglés más conocido. También es uno de los más estudiados porque disfrutó de un reinado largo de casi cuarenta años en los que Inglaterra cambió de manera radical. Heredó el trono de su padre, Enrique VII, que lo había conseguido tras disputárselo a Ricardo III, el último rey de la dinastía Plantagenet. Pero él no estaba llamado a ocupar el trono, sino su hermano Arturo, que murió prematuramente a los quince años poco después de casarse con la infanta española Catalina de Aragón, hija de los Reyes Católicos. Enrique tomó de su malogrado hermano el título de príncipe de Gales y a su esposa Catalina. Luego vendrían cinco más porque el segundo de los Tudor fue un hombre extraordinariamente mujeriego. 
+
+ En 1509 fue coronado rey tras la muerte de Enrique VII cuando aún no había cumplido los 18 años. A partir de ahí desplegó una activa política en el interior de Inglaterra y también en el exterior. Se alió con España, con el Sacro Imperio y con el Papa en sucesivas ocasiones, siempre que lo consideró útil para sus intereses. Pero por lo que pasaría a la historia no sería por eso, sino por romper con el catolicismo romano y fundar una iglesia nacional reformada, la comunión anglicana en cuya cabeza se encontraba la corona. Tras ello disolvió los monasterios y fue excomulgado por el Papa Clemente VII. 
+
+ La ruptura con Roma vino motivada por el primero de sus divorcios, el que disolvió la unión con Catalina de Aragón, algo que perseguía porque la infanta española no le había dado un hijo varón y porque se había enamorado de Ana Bolena, una aristócrata inglesa que terminaría siendo decapitada en la Torre de Londres tras ser acusada por traición y adulterio. Como vemos, la vida y el reinado de Enrique fueron muy novelescos, esa es la razón por la que su figura ha sido llevada al cine en muchas ocasiones.  
+
+ Hoy en La ContraHistoria vamos a adentrarnos en este monarca tan magnético como controvertido. En el Reino Unido se le sigue considerando como el padre de la Inglaterra moderna. Y en buena medida lo es. A él se debe la unión de Inglaterra y Gales, que él mismo decretó entre 1535 y 1542, o el germen de lo que posteriormente sería la Armada Real británica. Nos acompaña Lorena Carrasco, una historiadora española que vive en Inglaterra que ya estuvo con nosotros hace unos meses en un programa que dedicamos a la Guerra de las Rosas. Enrique VIII, de hecho es un producto de aquella guerra tan prolongada, así que, sin más demora pasemos ya a conocer más a fondo la vida de Enrique VIII de Inglaterra, el rey de las seis esposas que rompió con Roma. 
+
+ 
+
+https://www.ivoox.com/enrique-viii-furia-tudor-audios-mp3_rf_62153209_1.html
